@@ -5,4 +5,4 @@
 - 🌱 I’m currently enrolled at WGU for Cloud and Network Engineering - AWS ☁️
 - 💼 I work for a Customer Success team as a Support Specialist to many amazing clients!
 - 📫 You can reach me on ➡ [LinkedIn](https://www.linkedin.com/in/shelby-dickerson/)
-- 💕 Check out my personal [website](https://blog.thepinkrunbook.com/)!
+- 💕 Check out my personal [website](https://blog.thepinkrunbook.com/)
